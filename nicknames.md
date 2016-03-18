@@ -11,3 +11,4 @@
 * Douglos Lonely Boys
 * Prof. Dougledore
 * Pillsbury Dougboy
+* Darkwing Doug
