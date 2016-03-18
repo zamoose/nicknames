@@ -12,3 +12,5 @@
 * Prof. Dougledore
 * Pillsbury Dougboy
 * Darkwing Doug
+* Mr. Dougglesworth
+* Doug Day Afternoon
