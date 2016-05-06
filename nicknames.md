@@ -1,4 +1,5 @@
 # Nicknames
+* Agents of D.O.U.G.
 * JJ Abrams' DougLOST
 * Douglast Action Hero
 * Dougth Vader
