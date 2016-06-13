@@ -1,4 +1,5 @@
 # Nicknames
+* D'glestrHardougichud
 * WhoLetTheDougsOut?
 * Prodougtivity Expert
 * Agents of D.O.U.G.
