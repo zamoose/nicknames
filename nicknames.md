@@ -1,4 +1,5 @@
 # Nicknames
+* Sirius the Doug Star
 * D'glestrHardougichud
 * WhoLetTheDougsOut?
 * Prodougtivity Expert
