@@ -1,8 +1,9 @@
 # Nicknames
+* Doug Kinney
 * Sirius the Doug Star
 * D'glestrHardougichud
 * WhoLetTheDougsOut?
-* Prodougtivity Expert
+* m Expert
 * Agents of D.O.U.G.
 * JJ Abrams' DougLOST
 * Douglast Action Hero
