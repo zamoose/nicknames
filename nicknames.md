@@ -55,3 +55,4 @@
 * Dougleberry Finn
 * Dougs Bunny
 * Bob Johnson
+* Sir Dougby Chicken Caesar
