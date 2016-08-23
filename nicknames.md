@@ -1,4 +1,5 @@
 # Nicknames
+* Mad Doug McCree
 * Dougs Playing Poker
 * Doug Kinney
 * Sirius the Doug Star
