@@ -1,4 +1,5 @@
 # Nicknames
+* Dougogorgon
 * Mad Doug McCree
 * Dougs Playing Poker
 * Doug Kinney
