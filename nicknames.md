@@ -1,4 +1,5 @@
 # Nicknames
+* McGrufftheCrimeDoug
 * Dougogorgon
 * Mad Doug McCree
 * Dougs Playing Poker
