@@ -1,4 +1,5 @@
 # Nicknames
+*CityOfBrotherlyDoug
 * McGrufftheCrimeDoug
 * Dougogorgon
 * Mad Doug McCree
