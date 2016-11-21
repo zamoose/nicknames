@@ -1,4 +1,5 @@
 # Nicknames
+* H.P. Dougcraft
 * Count dougMonet
 * Cedric Dougory
 * CityOfBrotherlyDoug
