@@ -1,4 +1,5 @@
 # Nicknames
+* /r/dougjokes
 * Daedalus Douggle
 * Good Dougs, Bront
 * WestminsterDougShow
