@@ -1,4 +1,5 @@
 # Nicknames
+* DougTales (A-woo-oo)
 * LetSleepingDougsLie
 * Feature, not a Doug
 * /r/dougjokes
