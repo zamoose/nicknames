@@ -1,4 +1,5 @@
 # Nicknames
+* Temple of the Doug
 * DougTales (A-woo-oo)
 * LetSleepingDougsLie
 * Feature, not a Doug
