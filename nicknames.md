@@ -1,4 +1,5 @@
 # Nicknames
+* You'reTheManNowDoug
 * Temple of the Doug
 * DougTales (A-woo-oo)
 * LetSleepingDougsLie
