@@ -1,4 +1,6 @@
 # Nicknames
+* DougOps @ AWS re:Invent
+* Turdougken
 * Douguenots
 * Dougtor Frankenstein
 * You'reTheManNowDoug
