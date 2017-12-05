@@ -1,4 +1,5 @@
 # Nicknames
+* The Essential DougOps Handbook
 * DougOps @ AWS re:Invent
 * Turdougken
 * Douguenots
