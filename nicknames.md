@@ -1,4 +1,5 @@
 # Nicknames
+* Dougtor Gonzo (honorary)
 * Dougth Maul
 * The Essential DougOps Handbook
 * DougOps @ AWS re:Invent
