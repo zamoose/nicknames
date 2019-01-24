@@ -1,4 +1,6 @@
 # Nicknames
+* Doug Doug Bo Bug Banana Fanna Fo
+* Another Day, Another Doug
 * Dougtor Gonzo (honorary)
 * Dougth Maul
 * The Essential DougOps Handbook
