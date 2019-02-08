@@ -1,4 +1,5 @@
 # Nicknames
+* Cloud2Doug
 * Doug Doug Bo Bug Banana Fanna Fo
 * Another Day, Another Doug
 * Dougtor Gonzo (honorary)
