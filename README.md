@@ -1,4 +1,5 @@
 # Nicknames
+* I've got no Doug in this fight
 * Cloud2Doug
 * Doug Doug Bo Bug Banana Fanna Fo
 * Another Day, Another Doug
