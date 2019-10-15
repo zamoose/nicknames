@@ -1,4 +1,5 @@
 # Nicknames
+* Scooby Dooby Doug
 * Yeah, it's a no from me, Doug.
 * I've got no Doug in this fight
 * Cloud2Doug
