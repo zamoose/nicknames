@@ -1,4 +1,5 @@
 # Nicknames
+* Lying Doug-Faced Pony Soldier
 * Dougs of the Dow
 * Doug E. Hellofresh
 * Yo Doug We Heard You Like
