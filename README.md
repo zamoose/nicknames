@@ -1,4 +1,5 @@
 # Nicknames
+* Battletoads & Dougle Dragon
 * Dougtor Strangelove or: How I learned to stop
 * Lying Doug-Faced Pony Soldier
 * Dougs of the Dow
