@@ -1,4 +1,5 @@
 # Nicknames
+* My name is Doug, I have just met you, & I LOVE YOU
 * Doug, Doug, Gray Doug
 * Social Dougstancing
 * Battletoads & Dougle Dragon
