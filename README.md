@@ -1,4 +1,5 @@
 # Nicknames
+* Dougtor Strange in the Multiverse of Madness
 * It’s pronounced “Doug-coin”
 * Westminster Doug Show
 * My name is Doug, I have just met you, & I LOVE YOU
