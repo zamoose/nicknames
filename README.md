@@ -1,4 +1,5 @@
 # Nicknames
+* Frank Herbert's "The Children of Doug"
 * He’s going the Dougstance/He’s going for speed
 * Dougtor Strange in the Multiverse of Madness
 * It’s pronounced “Doug-coin”
