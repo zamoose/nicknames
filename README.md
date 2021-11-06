@@ -1,4 +1,5 @@
 # Nicknames
+* Muad'dougb
 * Dougital Underground
 * Frank Herbert's "The Children of Doug"
 * He’s going the Dougstance/He’s going for speed
