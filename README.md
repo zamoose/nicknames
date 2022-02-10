@@ -1,4 +1,5 @@
 # Nicknames
+* Dougtor of Philosophy (PhDoug)
 * Doug the Halls
 * A 17lb pongy potato called “Doug”
 * Muad'dougb
