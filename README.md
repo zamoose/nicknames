@@ -1,4 +1,5 @@
 # Nicknames
+* AMDoug Athlon 64
 * Cry Havoc and let slip the Dougs of War
 * Dougth on the Nile
 * Dougtor of Philosophy (PhDoug)
