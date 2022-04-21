@@ -1,4 +1,5 @@
 # Nicknames
+* 3dougfx Voodoo5-6000 SLI
 * AMDoug Athlon 64
 * Cry Havoc and let slip the Dougs of War
 * Dougth on the Nile
