@@ -1,4 +1,5 @@
 # Nicknames
+* Punch Douggy green, no punch-backs!
 * 3dougfx Voodoo5-6000 SLI
 * AMDoug Athlon 64
 * Cry Havoc and let slip the Dougs of War
