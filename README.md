@@ -1,4 +1,6 @@
 # Nicknames
+Za "The Mousse" Moose
+* McGruff the Crime Doug
 * Feature, Not A Doug
 * A Doug's Life
 * Punch Douggy green, no punch-backs!
