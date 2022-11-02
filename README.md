@@ -1,4 +1,5 @@
 # Nicknames
+* Jim Henson’s “Dougasaurs”
 * Za "The Mousse" Moose
 * McGruff the Crime Doug
 * Feature, Not A Doug
