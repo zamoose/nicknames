@@ -1,4 +1,5 @@
 # Nicknames
+* Dodge Dougrango™
 * Jim Henson’s “Dougasaurs”
 * Za "The Mousse" Moose
 * McGruff the Crime Doug
