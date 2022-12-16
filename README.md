@@ -1,4 +1,5 @@
 # Nicknames
+* That's a long-distance call, DOUG.
 * Dodge Dougrango™
 * Jim Henson’s “Dougasaurs”
 * Za "The Mousse" Moose
