@@ -1,4 +1,5 @@
 # Nicknames
+* Doug Zapper
 * Carthago Douglenda Est
 * That's a long-distance call, DOUG.
 * Dodge Dougrango™
