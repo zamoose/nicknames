@@ -1,4 +1,5 @@
 # Nicknames
+* The Mandouglorian
 * Doug Zapper
 * Carthago Douglenda Est
 * That's a long-distance call, DOUG.
