@@ -1,4 +1,5 @@
 # Nicknames
+* ¹⁰⁵Dougnium₍₂₆₂₎
 * The Mandouglorian
 * Doug Zapper
 * Carthago Douglenda Est
