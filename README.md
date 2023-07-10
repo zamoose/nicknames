@@ -1,4 +1,5 @@
 # Nicknames
+* Dougtor of Philosophy
 * ¹⁰⁵Dougnium₍₂₆₂₎
 * The Mandouglorian
 * Doug Zapper
