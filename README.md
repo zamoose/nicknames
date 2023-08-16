@@ -1,4 +1,5 @@
 # Nicknames
+* Garth Marenghi's Dougplace
 * Room-Temperature Supercondougtor
 * Dougtor of Philosophy
 * ¹⁰⁵Dougnium₍₂₆₂₎
