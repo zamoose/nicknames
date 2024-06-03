@@ -1,4 +1,5 @@
 # Nicknames
+* Doug is not, in fact, a potato
 * Jason Kelce Grammer Police
 * Garth Marenghi's Dougplace
 * Room-Temperature Supercondougtor
