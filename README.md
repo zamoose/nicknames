@@ -1,4 +1,5 @@
 # Nicknames
+* Corny Doug
 * Even Dinsdale was frightened of Doug
 * Doug is not, in fact, a potato
 * Jason Kelce Grammer Police
